@@ -1,4 +1,4 @@
-# 👋 Hi, I'm Gowri Lakshani Abinesh!
+# 👋 Hi, I'm Gowri!
 
 ## 💡 Where Operational Excellence Meets Predictive Power
 
